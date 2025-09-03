@@ -1,0 +1,1 @@
+Hierdie was 'n groot asseseering in die middel van die semester, waarvan dit meestal teorie vrae was, daar was ook 'n klein kodering vraag. In hierdie leêr is ook die Boole logika diagram wat ons moes doen.
